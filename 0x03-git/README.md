@@ -1,1 +1,1 @@
-//ESTA ES UNA CARPERTA PARA LEER gracias por tomarse el tiempo//
+//ESTA ES UNA CARPERTA PARA LEER//
